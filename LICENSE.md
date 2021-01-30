@@ -1,1 +1,1 @@
-© 2020 Shepherd's Oasis, LLC. All Rights Reserved.
+© Shepherd's Oasis, LLC. All Rights Reserved.
